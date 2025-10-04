@@ -1,1 +1,0 @@
-# Nady-WQayt-assute
